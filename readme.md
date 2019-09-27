@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Tomáš Kosec
-2. Filip Eliaš
+2.  Filip Eliaš
 3. Maroš Malý
 4. Juraj Melišík
 
